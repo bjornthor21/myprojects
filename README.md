@@ -1,3 +1,3 @@
 # Verkefni
 
-Ég hef unnið að fjölmörgum spennandi verkefnum í gegnum tíðina, bæði í námi og persónulegum áhugamálum. Hér má sjá nokkur dæmi af þeim
+Ég hef unnið að fjölmörgum verkefnum í gegnum tíðina, bæði í námi og persónulegum áhugamálum. Hér má sjá nokkur dæmi af þeim
